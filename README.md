@@ -12,7 +12,7 @@ Ernest Hemingway
 Trastorno bipolar, acoholismo y la depresión fueron los posibles causantes del suicidio de Hemingway
 
 Stefan Zweig
-<img src="c:\Users\Hugo Daniel Marin\Downloads\MicrosoftTeams-image (2).png"width="150px">  Novela de ajedrez
+ Novela de ajedrez
 
 Stefan al ver como Europa estaba siendo destruido en la Segunda Guerra Mundial viajó a Brasil para salir del conflicto pero fue muy impaciente y al creer que los Nazis dominarían el mundo. Su esposa también suicidó para acompañarlo
 
